@@ -1,2 +1,2 @@
-# LeuxBackdoor-0.4-Lekeado
-Ezzz lekead
+# LeuxBackdoor-0.4-Leaked
+Ezzz leaked
